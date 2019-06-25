@@ -1,1 +1,1 @@
-# example
+# new sample details for your reference
